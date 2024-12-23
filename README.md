@@ -1,0 +1,6 @@
+# Support for a Survivor of Trafficking Facing Immediate Danger
+A close friend of mine is in a deeply distressing and dangerous situation. She is a survivor of sexual trafficking but is now being relentlessly harassed and threatened with retrafficking by her former trafficker. This individual has escalated their harassment—both in person and online—creating countless accounts to send violent, dehumanizing threats.
+
+The complexity of her case, which spans multiple states and involves interstate trafficking, has made legal action especially challenging. Unfortunately, law enforcement has been slow to act, emboldening the trafficker to continue their threats with impunity. Despite her courage and resilience, my friend is financially unable to secure the experienced private attorney necessary to push her case forward and protect her from further harm.
+
+Your donations will directly help ensure her safety and access to the legal representation she desperately needs to hold her trafficker accountable and secure her peace of mind. Any amount makes a meaningful difference and is deeply appreciated by her in this critical time. Together, we can provide her with the protection and justice she deserves. Thank you for your kindness and support.
